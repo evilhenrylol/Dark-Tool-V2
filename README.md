@@ -1,4 +1,2 @@
 # Dark-Tool-V2
-my tool dark tool v2 
-
-its a muti tool i guess
+ I MADE THIS WHEN I WAS A SAKID I DIDNT MAKE THIS ( GPT MADE IT )
